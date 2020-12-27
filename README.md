@@ -1,0 +1,1 @@
+# Global-AI-hub--Python-homework-and-project
